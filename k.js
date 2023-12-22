@@ -1,1 +1,0 @@
-https://gaviaspreview.com/wp/tevily/wp-content/uploads/2021/10/slider-5.jpg
